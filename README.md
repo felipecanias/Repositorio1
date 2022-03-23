@@ -15,4 +15,3 @@
 |Felipe| felacanas2003@gmail.com|
 
 > **Fecha:** 23/03/22
-> **Hora:** 8:45
